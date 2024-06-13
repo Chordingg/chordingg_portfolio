@@ -1,1 +1,0 @@
-# chordingg_portfolio
